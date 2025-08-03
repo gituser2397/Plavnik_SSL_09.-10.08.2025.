@@ -19,8 +19,8 @@
 
 ## 📅 10.8. (nedjelja)
 
-- **18:00** – Polazak s Plavnika prema Pinezić  
-- **19:00** – Dolazak u Pinezić  
+- **??:00** – Polazak s Plavnika prema Pinezić  
+- **??:00** – Dolazak u Pinezić  
 
 ---
 
