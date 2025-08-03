@@ -10,11 +10,9 @@ NAPOMENA: Ovo sve vrijedi uz pretpostavku da je lijepo vrijeme
 	16:00. – Vezanje za betosnki blok i drvo da barka bude sigurna za vrijeme ostanka na otoku		~1h
 	17:00. – Plinskim roštiljem na barci ispeć meso i pripremit salatu ~30min
 	17:30. – Ručak/Većera ~1h
-	
 	20:20. – Zalazak sunca
 
 10.8. (nedjelja):
-	
 	18:00. – Polazak s Plavnika prema Pinezić
 	19:00. – Pinezić
 	
