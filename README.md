@@ -32,4 +32,7 @@
 - Dobro razmisliti što sve nositi jer su noći hladne. Preporuka Kapetana:
   - Šator  
   - Vreća za spavanje  
-  - Madrac na napuhavanje  
+  - Madrac na napuhavanje
+
+<img width="1343" height="789" alt="image" src="https://github.com/user-attachments/assets/c64acc20-62d8-45b0-a35e-7aa8429b4917" />
+
