@@ -34,5 +34,6 @@
   - Vreća za spavanje  
   - Madrac na napuhavanje
 
-<img width="1343" height="789" alt="image" src="https://github.com/user-attachments/assets/c64acc20-62d8-45b0-a35e-7aa8429b4917" />
+<img width="985" height="1669" alt="image" src="https://github.com/user-attachments/assets/b95c261d-9236-44c5-8c92-2c0d7e5c7d69" />
+
 
