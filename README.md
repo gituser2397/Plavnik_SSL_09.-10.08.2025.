@@ -29,10 +29,11 @@
 - Barka ima frižider od 55L  
 - Zabranjene ilegalne supstance tijekom boravka na otoku i plovidbi *(trava nije droga)*  
 - Obavezno ponijeti vreće za smeće i **ne bacati smeće po otoku** – jer ćete dobit po pički  
-- Dobro razmisliti što sve nositi jer su noći hladne. Preporuka Kapetana:
+- Dobro razmisliti što sve nositi jer su noći friške (20-22 °C). Preporuka Kapetana:
   - Šator  
   - Vreća za spavanje  
   - Madrac na napuhavanje
+  - Tenisice (ili neku drugu čvrsu obuću jer je teren na djelovima zahtjevan)
 
 <img width="985" height="1669" alt="image" src="https://github.com/user-attachments/assets/b95c261d-9236-44c5-8c92-2c0d7e5c7d69" />
 
